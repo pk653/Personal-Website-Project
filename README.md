@@ -1,2 +1,2 @@
-# Prajwal-Kapinadka-Webiste-Project
+# Prajwal-Kapinadka-Website-Project
  
